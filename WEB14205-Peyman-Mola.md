@@ -25,7 +25,7 @@ https://medium.com/@peymanmola/if-you-could-be-the-character-in-your-own-fiction
  
 
 ## Formative Presentation
-https://docs.google.com/presentation/d/136NRTsnk0ezIj8oSdB0EdHUo7uxrx4bQPDWZ5EICWaQ/edit?usp=sharing
+https://drive.google.com/file/d/1YYweijrso3wkpuF9YPzHvAAihDkidTMw/view?usp=sharing
 
 ## Summative Presentation
 ## Meta-narrative outline 
