@@ -28,6 +28,8 @@ https://medium.com/@peymanmola/if-you-could-be-the-character-in-your-own-fiction
 https://drive.google.com/file/d/1YYweijrso3wkpuF9YPzHvAAihDkidTMw/view?usp=sharing
 
 ## Summative Presentation
-## Meta-narrative outline 
+## Meta-narrative outline
+https://drive.google.com/file/d/1tt2ms2aDClNsHZWPztxFtWBsIgw_NyZJ/view?usp=sharing
 ## Twine production
 ## 500 word reflective report
+https://medium.com/@peymanmola/reflective-report-on-contribution-to-this-project-de44d490eaa6
