@@ -1,6 +1,7 @@
 # Interactive-Narrative
 
-## Research pack 
+## Research pack
+https://docs.google.com/document/d/1QS9UqpzDvQ_-x4P3VX8jK7uCzffugWZkBSSaohrWKR8/edit
 ## Blogs
 Week 1
 https://medium.com/@peymanmola/what-are-some-of-the-fundamental-elements-that-are-required-to-develop-a-interactive-narrative-and-68d3d476b3af
